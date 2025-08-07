@@ -8,4 +8,4 @@ There are three places can get out from here, good luck!
 
 Keep patient.
 
-👉 https://tianyin330.github.io/Eerie-Mansion/
+👉 https://sophia-creation.github.io/Eerie-Mansion/
